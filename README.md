@@ -35,4 +35,4 @@ This bot is against Discord Term's of Service. I am not responsible if you, or y
 - **[- ItzmeKen](https://www.github.com/ItzmeKen)**
 
 ## CONTACT
-- [Discord Server](https://discord.gg/a3EjDW2Uu3)
+- **[Discord Server](https://discord.gg/a3EjDW2Uu3)**

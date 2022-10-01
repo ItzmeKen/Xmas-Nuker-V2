@@ -36,3 +36,4 @@ This bot is against Discord Term's of Service. I am not responsible if you, or y
 
 ## CONTACT
 - **[Discord Server](https://discord.gg/a3EjDW2Uu3)**
+- **[Discord ID](https://discord.com/channels/@me/1025449053821083711)**
